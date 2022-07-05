@@ -1,1 +1,0 @@
-# gps_generaly75nw
